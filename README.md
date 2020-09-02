@@ -1,1 +1,0 @@
-# ida_ar_testta18g
